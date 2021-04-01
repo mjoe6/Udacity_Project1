@@ -48,3 +48,6 @@ Our top features are as follows:
 - Type of room: Private Room
 - Type of bed: Real Bed
 - Property Type: House
+
+Medium Link
+https://mjoe6.medium.com/passive-income-how-to-have-a-successful-airbnb-7661d922bfbe
